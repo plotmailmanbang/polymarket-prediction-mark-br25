@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with professional Trading Bot for Polymarket - cross-chain-arbitrage and custom-strategies, the #1 trading-bot. Includes cross-chain-arbitrage and
 
 
 
